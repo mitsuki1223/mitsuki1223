@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mitsuki1223
+- 👀 I’m interested in web designing
+- 🌱 I’m currently learning HTML/CSS/JAVASCRIPT
+- 📫 xingencai060@gmail.com ...
+- 😄 Pronouns: He
+- ⚡ Fun fact: BTW I use arch and macOS
